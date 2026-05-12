@@ -2,6 +2,9 @@
 
 Some links on this page may be affiliate links. If you purchase through these links, we may earn a commission at no extra cost to you. This does not affect our editorial opinion, coupon selection, or deal verification process.
 
+<img width="900" height="202" alt="namecheap-coupon" src="https://github.com/user-attachments/assets/88b51f1b-f626-4bfa-b5ad-5fbace5cc509" />
+
+
 ---
 
 ## Quick Answer: Best Namecheap Coupon Right Now
